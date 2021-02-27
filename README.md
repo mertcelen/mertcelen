@@ -1,3 +1,5 @@
 ### Hi there 👋
 
-✨ I'm currently working on Liman MYS https://github.com/limanmys More information at https://liman.havelsan.com.tr/
+✨ Currently working on https://github.com/masomo 🤘
+
+✨ I worked on Liman MYS https://github.com/limanmys for 2.5 years. More information at https://liman.havelsan.com.tr/
